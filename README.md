@@ -1,3 +1,6 @@
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=hajimefart&color=ff69b4" alt="Profile Views">
+</div>
 <p align="center">
 <img width="640" height="50" alt="tumblr_b191f522458ed05a21e7c31321306751_ee12464c_400" src="https://github.com/user-attachments/assets/65febbb3-2f25-41e9-8b78-edcd3f286a22" />
 <p align="center">
