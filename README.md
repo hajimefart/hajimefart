@@ -2,7 +2,8 @@
 <img width="640" height="50" alt="tumblr_b191f522458ed05a21e7c31321306751_ee12464c_400" src="https://github.com/user-attachments/assets/65febbb3-2f25-41e9-8b78-edcd3f286a22" />
 <p align="center">
 hi im joey idk how to make this cute or anything im only using this for ponytown soo. 
-<p align="center"> c+h, you can always interact idc! im usually afk though so if you wanna talk whisper me (i might not respond right away)
+<p align="center"> c+h, you can always interact idc! im usually afk though so <b>if you wanna talk whisper me (i might not respond right away)</b> 
+<p align="center"> <b>DO NOT ROLEPLAY WITH ME. I WILL IGNORE YOU I DO NOT ROLEPLAY</b>
 <p align="center"> i love making new friends dont be afraid to talk to me :D my discord is odetocrayola
 <p align="center"> i change fandoms from time to time but i do stick to enstars a lot, you'll see me around that area but i am also in mcyt/roblox area sometimes and at spawn
 <p align="center"> i dont really have a dni for ponytown, if i dont like you ill hide you ;_;
