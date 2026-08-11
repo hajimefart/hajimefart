@@ -10,7 +10,7 @@ hi im joey idk how to make this cute or anything im only using this for ponytown
 <p align="center"> i love making new friends dont be afraid to talk to me :D my discord is odetocrayola
 <p align="center"> i change fandoms from time to time but i do stick to enstars a lot, you'll see me around that area but i am also in mcyt/roblox area sometimes and at spawn
 <p align="center"> i dont really have a dni for ponytown, if i dont like you ill hide you ;_; 
-<p align="center"> i dont care about inspo , i cant rlly stop you ;_;, but i would perfer if you didnt copy directly
+<p align="center"> i dont care about inspo , i cant rlly stop you ;_;, but i would prefer if you didnt copy directly
 <p align="center"> i am the number one neil cicierega fan and this is a fact, i am also number one sora fan <3 
 <p align="center"> <img width="300" height="300" alt="IMG_0320" src="https://github.com/user-attachments/assets/6ee7a93f-b514-4948-ba36-c90d3aa50bc9" />
 <p align="center"> i also have a neil cicierega ita bag but i dont have a pic rn, i love doing oshikatsu
