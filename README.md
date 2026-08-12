@@ -7,6 +7,7 @@
 hi im joey idk how to make this cute or anything im only using this for ponytown soo. 
 <p align="center"> c+h, you can always interact idc! im usually afk though so <b>if you wanna talk whisper me (i might not respond right away)</b> 
 <p align="center"> <b>DO NOT ROLEPLAY WITH ME. I WILL IGNORE YOU I DO NOT ROLEPLAY</b>
+<p align="center"> if we're ever together and i walk away its probably because my cat is stepping on my keyboard while im afk... she likes to watch the ponies
 <p align="center"> i love making new friends dont be afraid to talk to me :D my discord is odetocrayola
 <p align="center"> i change fandoms from time to time but i do stick to enstars a lot, you'll see me around that area but i am also in mcyt/roblox area sometimes and at spawn
 <p align="center"> i dont really have a dni for ponytown, if i dont like you ill hide you ;_; 
