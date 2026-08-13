@@ -16,6 +16,7 @@ hi im joey idk how to make this cute or anything im only using this for ponytown
 <p align="center"> i dont care about inspo , i cant rlly stop you ;_;, but i would prefer if you didnt copy directly
 <p align="center"> i am the number one neil cicierega fan and this is a fact, i am also number one sora fan <3 
 <p align="center"> <img width="300" height="300" alt="IMG_0320" src="https://github.com/user-attachments/assets/6ee7a93f-b514-4948-ba36-c90d3aa50bc9" />
+<p align="center"> <b>I AM ON THE LOOKOUT FOR THE SORA HARUKAWA PERFUME PLEASE LET ME KNOW IF ANYONE HAS IT FOR SALE.</b>
 <p align="center"> i also have a neil cicierega ita bag but i dont have a pic rn, i love doing oshikatsu
 <p align="center"> i think thats all thank u for reading 
 <p align="center"> https://ozexplodes.carrd.co/ https://iearnmylife.atabook.org/
