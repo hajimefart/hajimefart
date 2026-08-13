@@ -7,6 +7,7 @@
 hi im joey idk how to make this cute or anything im only using this for ponytown soo. 
 <p align="center"> c+h, you can always interact idc! im usually afk though so <b>if you wanna talk whisper me (i might not respond right away)</b> 
 <p align="center"> <b>DO NOT ROLEPLAY WITH ME. I WILL IGNORE YOU I DO NOT ROLEPLAY</b>
+<p align="center"> i like conversating but i dont always continue conversations, if you ever wanna talk more just continue talking
 <p align="center"> if we're ever together and i walk away its probably because my cat is stepping on my keyboard while im afk... she likes to watch the ponies
 <p align="center"> <img width="200" height="250" alt="IMG_0454" src="https://github.com/user-attachments/assets/e6e7b27a-28a1-408d-b48a-a41681ead02a" /> <img width="200" height="250" alt="IMG_0455" src="https://github.com/user-attachments/assets/d195c8d7-2115-423d-9eec-e3ec277a5697" />
 
